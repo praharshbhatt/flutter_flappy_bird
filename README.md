@@ -34,6 +34,8 @@ PS: It's my first "game", so, don't judge me. I've made a lot of mistakes in arc
 
 <br>
 <br>
-**Contact**:
+
+**Contact**
+
 praharsh@multiverseapp.com
 <img src="Pink and Purple Professional LinkedIn Banner.gif" width=800>
